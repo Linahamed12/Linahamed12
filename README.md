@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Linahamed12
 - 👀 I’m interested in ...complication of covid vaccine
 - 🌱 I’m currently learning ...2ed year
-- 💞️ I’m looking to collaborate on ...finding infomation about my research
+- 💞️ I’m looking to collaborate on ...finding infomation about my research and help me in my stepsn
 - 📫 How to reach me ...via whatsapp +249907329523
 
 <!---
